@@ -1,4 +1,4 @@
-![logo](https://kreately.in/wp-content/uploads/2022/05/java.png)
+![logo](https://cdn.fs.teachablecdn.com/wE1cAsKbT8OqwTBnswkw)
 <h1 align="center">Hi 👋, I'm Akshay Bargainya</h1>
 <h3 align="center">A passionate Java FullStack developer from India</h3>
 
