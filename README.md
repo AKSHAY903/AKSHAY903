@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **akshaybargainya123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Xo7CBmZV3jpE6GCi0qLWyl6c-7PMS-aK/view?usp=drive_link](https://drive.google.com/file/d/1Xo7CBmZV3jpE6GCi0qLWyl6c-7PMS-aK/view?usp=drive_link)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1IfVXMdNiW7YODLNq1yUenk4xisVKxLEv/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
