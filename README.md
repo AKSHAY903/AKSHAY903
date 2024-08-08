@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **akshaybargainya123@gmail.com**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/1IfVXMdNiW7YODLNq1yUenk4xisVKxLEv/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1IfVXMdNiW7YODLNq1yUenk4xisVKxLEv/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
